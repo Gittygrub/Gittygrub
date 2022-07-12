@@ -3,7 +3,7 @@
 - 👀 consultant and CMO at Lunar Calendar Celebrities
 - 🌱 Understanding Fintech since I already have a background in trading forex and cryptocurrency
 - 💞️ i want to work with projects with good vision and are ready to execute said vision
-- 📫 Twitter: https://twitter.com/ablea13 Telegram: @A18748
+- 📫 Twitter: indexprofits@gmail.com, Telegram: @A18748
 - Hobbies are sports (soccer, basketball)
 - B2B experience in trading commodities
 - Consultant, Marketer, Business developer, Growth lead, sales lead, partnerships lead
