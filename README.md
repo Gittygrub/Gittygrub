@@ -1,9 +1,11 @@
-- 👋 Hi, I’m @Gittygrub
-- 👀 I’m interested in ...cryptocurrency and the financial markets
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 Hi, I’m Abel A.[resume.pdf](https://github.com/Gittygrub/Gittygrub/files/9092267/resume.pdf)
 
-<!---
-Gittygrub/Gittygrub is experienced brand builder and is interested in working with projects that are starting off. Adding my little expertise of building a brand and technical analysis from trading crypto and forex.
---->
+- 👀 cryptocurrency and the financial markets
+- 🌱 Understanding Fintech since I already have a background on trading forex and cryptocurrency
+- 💞️ I’m looking to collaborate on ...
+- 📫 Twitter: https://twitter.com/ablea13 Telegram: @A18748
+- Hobbies are sports (soccer, basketball)
+- B2B experience in trading commodities
+- Consultant, Marketer, Business developer, Growth lead, sales lead, partnerships lead
+- market anaylyst
+- Worked in sales and marketing for a period that spans 12 years
