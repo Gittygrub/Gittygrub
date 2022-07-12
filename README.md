@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Abel A.[resume.pdf](https://github.com/Gittygrub/Gittygrub/files/9092267/resume.pdf)
 
 - 👀 consultant and CMO at Lunar Calendar Celebrities
-- 🌱 Understanding Fintech since I already have a background on trading forex and cryptocurrency
+- 🌱 Understanding Fintech since I already have a background in trading forex and cryptocurrency
 - 💞️ i want to work with projects with good vision and are ready to execute said vision
 - 📫 Twitter: https://twitter.com/ablea13 Telegram: @A18748
 - Hobbies are sports (soccer, basketball)
