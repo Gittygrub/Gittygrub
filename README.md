@@ -2,7 +2,7 @@
 
 - 👀 cryptocurrency and the financial markets
 - 🌱 Understanding Fintech since I already have a background on trading forex and cryptocurrency
-- 💞️ I’m looking to collaborate on ...
+- 💞️ i want to work with projects with good vision and are ready to execute said vision
 - 📫 Twitter: https://twitter.com/ablea13 Telegram: @A18748
 - Hobbies are sports (soccer, basketball)
 - B2B experience in trading commodities
