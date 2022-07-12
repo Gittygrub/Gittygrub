@@ -2,7 +2,7 @@
 
 - 👀 consultant and CMO at Lunar Calendar Celebrities
 - 🌱 Understanding Fintech since I already have a background in trading forex and cryptocurrency
-- 💞️ i want to work with projects (DeFi, DAOs, web3, NFTs etc) with good vision and are ready to execute said vision since I already have a vast knowledge of the crypto space
+- 💞️ i want to work with projects (DeFi, DAOs, web3, NFTs etc) with good vision and are ready to execute said vision since I already have a good knowledge of the crypto space
 - 📫 Twitter: indexprofits@gmail.com, Telegram: @A18748
 - Hobbies are sports (soccer, basketball)
 - B2B experience in trading commodities
